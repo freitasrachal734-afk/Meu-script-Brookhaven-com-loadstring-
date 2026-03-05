@@ -1,0 +1,1 @@
+# Meu-script-Brookhaven-com-loadstring-
